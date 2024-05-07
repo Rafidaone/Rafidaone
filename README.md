@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Rafidaone
-- 👀 I’m interested in ... my ass
-- 🌱 I’m currently learning ... how to scrach my balls
-- 💞️ I’m looking to collaborate on ... your mom
-- 📫 How to reach me ... break down my door
+- 👀 I’m interested in ... my educatinal carear
+- 🌱 I’m currently learning ... america
+- 💞️ I’m looking to collaborate on ... great projects that can benifit sociaty
+- 📫 You could contact me through my contact info
 
 <!---
 Rafidaone/Rafidaone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
